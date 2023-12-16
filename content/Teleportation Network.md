@@ -2,7 +2,7 @@ Moves the party between well established places.
 Can only move between divine attuned statues when we own the corresponding holy symbol. 
 Costs 50gp per holy symbol
 
-Malphas - [[Ark]] and [[Lathyrus Palace]] and [[Dawn’s Crossing]] (Symbol owned)
+>Malphas - [[Ark]] and [[Lathyrus Palace]] and [[Dawn’s Crossing]] (Symbol owned)
 Arazeal - [[Ark]] and [[Death’s Vigil]] (Symbol owned)
 Iara - [[Ark]] and [[Twinslove]]
 Wolfmother - [[Ark]], ‘[[Narthaxus Outpost]]’ and ‘Narthaxus [[Wolfmother’s Embrace]]’
