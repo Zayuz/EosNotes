@@ -21,8 +21,8 @@ She awoke exactly where she never wanted to be - her mother’s cult altar. Some
 
 Sporting wings and holy light during her battles, the people start to call her the ‘Angel of Paradyse’. Her battles are chosen carefully, building her skills and shrinking back from other dangers until she believes herself capable of facing them. Her focus in combat is primarily on defence, keeping herself safe and striking only when the opponent becomes overextended. After all, if the opponent can never hit her, how can they ever hope to kill her?
 
-
 ### Motives
+#### Act 2
 Wishes to acquire the powers of a Deathseeker of Arazeal - to kill undead permanently. However, she does not wish to join them. She wishes the same for Shadows.
 Wishes to find and wield [[King Lysandre's Blade]].
 
@@ -41,18 +41,42 @@ Dawnborn (temporary alliance, hostilities disbanded but re-igniting), Dragons
 
 Lithiel does not consider predatory mortals or criminals to be her foes, so long as they act out of a need to survive the other elements on this list.
 
+#### Act 3
+The list from act 2 remains, but Lithiel has now defeated Freyalise and Urthemiel. She has joined the Holy Order and come to have an uneasy acceptance with the party, who regard her sceptically. Some of them believe her evil, and this frustrates Lithiel after how much fighting she's done at their side. Lacking some of her powers since Razikale abandoned her, she now walks the fine line between harnessing ruinous powers to make up for this loss and assuaging the concerns of her allies. Now 'queen' of Lathyrus, Lithiel forfeits this to Ourea to save her image - earning her a new, truly good ally in exchange for the place as heir and princess of her homeland. 
+
+She sincerely wants to grow her power, make her homeland (all of Alderwyl now) beautiful and free of her enemies, and help prevent the end of the world. She wants to respect the relationships she has and their desires while subtly trying to push the envelope.
+
 ### Class Composition & Techniques
-Lithiel always has Mage Armor active, flavoured as invisible runes she carves into the weave each morning to protect her from harm. They compound with her blessing of Razikale to keep her highly warded from harm.
+Lithiel always has Mage Armor active, flavoured as invisible runes she carves into the weave each morning to protect her from harm. They once compounded with her blessing of Razikale to keep her highly warded from harm, but now the [[Armor of Shapes]] applies these runes automatically for her.
 
 Her Blessing of Razikale manifests in two parts. 
 The ritual her mother conducted surrounding her birth made her an angel and granted her hermaphroditism.
 The acceptance of the [[Cult of the Mirror]] signified through adopting her pact weapon, the whip, granted her Razikale's direct protection in the form of a spiked, stylized heart tattoo hidden below her breasts.
+
 ![[Lithiel's Blessing.png| 100x100]]
 
 When she feels the wards she placed around her breaking in combat, she uses magical shielding reinforce them and prevent attacks from breaking the skin she leaves unarmoured.
 
-Angelic Form - Lithiel can sprout wings for a short time each day, a talent she discovered while on the brink of death in Paradyse, where she earned her name (Angel of Paradyse). 
+Angelic Form - Lithiel can sprout wings for a short time each day, a talent she discovered while on the brink of death in Paradyse, where she earned her name (Angel of Paradyse). Since Razikale exited her body, she has found the wings and holy power come to her more permanently.
 
+#### Current Class Composition:
+
+Wizard: Bladesinger
+Bladesinging for Lithiel means using a practiced set of steps, movements, simple spells and physical techniques all memorized through daily ritual conducted for the last ten years of her life. All of them amount to her being fluid and dangerous in combat, more so than any other particular element of her kit and classes. Her melee combat features defensive stances, defensive hexes, and and focus on maintaining concentration in combat mirror an old Lathyran tradition that has been entirely eliminated from the world.
+
+Paladin: Autonomy
+The Oath of Autonomy binds paladins to protect mortal realms from the enemies of liberty and peace, throwing themselves into active conflicts in the name of preserving a world without fear. Honing their minds, spirits and bodies to be the ultimate weapons against such threats, the paladins seek out and resolve conflicts that disrupt autonomous living through clever thinking, idealistic thought, and tremendous violence.
+
+Paladins who follow the oath of Autonomy do not shy away from conflict, be it ideological or physical. Battle in both ways is a test of ideals, and it is their responsibility to fight for the side they believe is better for the future of Eos regardless of prior allegiance.
+
+*Discipline. You are the shield against the endless terrors that haunt Eos. Train at every opportunity. Your blade must be forever sharp and your mind keen to survive what lies beyond.
+
+*Courage. You must be willing to do what needs to be done for the sake of order, even in the face of overwhelming odds. If you don't act, then who will? The goal of a better world comes before fear, comfort, and even love.
+
+*Vanity - Aka 'Illumination'. Your body is a temple that ought to be preserved and exalted. Hone it to its full potential, and use it without shame. Let it radiate confidence and beauty that matches the strength of your idealism to give hope to the hopeless.
+
+
+#### Old Class Composition:
 Warlock: Pact of the Blade + Hexblade
 Lithiel's Warlock traits manifest in the form of Beguiling Influence and Eyes of the Rune Keeper which allow her to invoke her patron's charm to convince and lie to others, and to read any and all forms of writing respectively.
 The Pact of the Blade also grants her a hex she can place on one foe, marking them with the above heart and letting her whip thirst for their blood.
@@ -63,7 +87,8 @@ Lithiel's particular oath was never officially taken, but she has allowed it to 
 She does not know from where she summons the power she does when she smites or uses paladin spells, believing them to be the manifestations of raw conviction meshed with a talent for wizardry and angelic blood. Considering that they eat up her mana pool, this explanation satisfies her.
 
 Wizard: Bladesinger
-Bladesinging for Lithiel means using a practiced set of steps, movements, simple spells and physical techniques all memorized through daily ritual conducted for the last ten years of her life. All of them amount to her being fluid and dangerous in combat, more so than any other particular element of her kit and classes. Her melee combat defensive stances, defensive hexes, and and focus on maintaining concentration and focus in combat mirror an old Lathyran tradition that has been entirely eliminated from the world.
+See current class composition.
+
 
 ### Conspiracies
 ##### Sceptical of Shiloh and Rose's Motives (Debunked)
