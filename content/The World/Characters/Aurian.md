@@ -1,0 +1,3 @@
+An exiled gold dragon who uses two mechanical arms (as well as his normal ones) in combat. He wishes to depose the tyrant queen who rules his homeland, and has lost many adventurers before hiring us... Formerly in a party with [[Cormac]] and [[Sera the Bard]] who are both now deceased.
+
+Fought alongside [[Rose]] and [[Shiloh]] in the past. Died during the [[Battle of Charrum Vale]], then was revived thanks to a magical artefact, an amulet made of [[Soulstone]] that he possessed.

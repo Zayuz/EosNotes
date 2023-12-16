@@ -1,0 +1,2 @@
+Supposedly the most magical place in all of [[Eos]] that is not the [[Dawnborn]]'s throne of [[Inodan]]. There are tales of people emerging from the woods with entirely new power and understandings of life, but also those who who become forever trapped within. It is in very close proximity to the [[Evermoon]].
+An [[Toth|all-consuming evil]] protects [[King Lysandre's Blade]] deep within the woods. Scrimshaw claimed that 'His name can be heard in the trees,' referring to the evil presence.

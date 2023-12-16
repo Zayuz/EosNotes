@@ -1,0 +1,1 @@
+Healstrom is the God of Innovation, whose domains include knowledge, the forge, and the mind. We know through flashbacks that he invented the [[Divine Guardian]], and is responsible for much of the progress the Dawnborn have made in halting the next cleansing.

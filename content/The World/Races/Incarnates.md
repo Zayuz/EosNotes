@@ -1,0 +1,6 @@
+[[Razikale]]'s whereabouts are unknown. Her influence vanished after [[Lathyrus]]'s fall. She is presumed banished or locked away. [[Urthemiel]] was the first of [[Alderwyl]]'s incarnates to be locked away. He was sealed deep below the ground somewhere in Lathyrus's borders. He is responsible for the souls of the dead becoming wraiths in Alderwyl and is more than likely the source of [[Freyalise]]'s power. [[Toth]] was not imprisoned in the same way as the others, instead his spirit was sundered and bound _inside_ the [[Whisperwood]], where he remains as a source of natural corruption and desiccation within Alderwyl's wild places. [[Lusacan]] was chained up in the area called [[Lusacan's Fall]], no big shock. It was mentioned in the Alderwyl region guide that the [[Dragon Empire]] has that entire area well fortified. The people of Alderwyl attribute the [[Rage of Dragons]] to Lusacan's influence somehow.
+
+
+[[Razikale]]'s followers are the [[Cult of the Mirror]]. [[Toth]]'s followers are the [[Cult of the Rook]]. [[Urthemiel]] has no organized cult following (except the wraiths of Freyalise?). [[Lusacan]]'s followers are just the [[Dragon Empire]]. 
+
+Incarnates share some similarities with Shadows, in that Florian's Mask can detect their presence and corruption. 

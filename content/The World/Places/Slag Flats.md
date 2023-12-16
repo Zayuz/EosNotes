@@ -1,0 +1,1 @@
+Once home to the [[Aureate Dragons|Aureate Dragons]], since its abandonment and the [[Splintering]] it has become a desolate expanse of rock, lava, and dragon relics.

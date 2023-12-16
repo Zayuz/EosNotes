@@ -1,0 +1,1 @@
+A command sphere that was notably different from the others, confiscated by [[Malphas]] at some point before her death. It was found during a routine excavation of [[Valuren]] ruins gone wrong in [[Icelia]]'s backstory, granting her sorcerous powers and making her into a [[Wild Mages|Wild Mage]]. Before she gave it away, it had begun to make her feel compulsively attached to it.

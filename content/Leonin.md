@@ -1,0 +1,1 @@
+A race of lion folk who seem to have appeared in this cycle as well as cycles past, according to visions displayed by [[The Lady]]. We know they at least have some presence on [[Vyn]] after we met [[Camavora]]. 

@@ -1,0 +1,1 @@
+A place where hunters of [[Shadow]] congregate and use their hunts to purchase goods. More kills = more value. Perhaps located in the lost land of [[Eresséia]].

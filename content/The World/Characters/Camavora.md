@@ -1,0 +1,1 @@
+A [[Leonin]] adventurer woman we met underground after her expedition into Valuren ruins near [[Ark]] had been killed. We saved her from the roper, and she accompanied us through the entire dungeon. This means she is the only surviving member of the expedition outside of [[Rose]] and [[Shiloh]], and that she knows about the origins of the [[Dawnborn]].

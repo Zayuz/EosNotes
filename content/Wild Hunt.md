@@ -1,0 +1,1 @@
+A force of rangers that defends [[Twinslove]], lead by [[Lord Herne]]. 

@@ -1,0 +1,3 @@
+The Numen are the oldest known race, predating the [[Cleansings]] and the [[Dawnborn]], [[Valuren]], etc. They are not one specific species, but a collection of species of shared origin akin to the all elves, dwarves, and humans being under the 'humanoid' umbrella. 
+
+When the [[Luminos]] fell, the Numen fought a war amongst themselves. Some wished to devour its light, and in so doing became monsters. These were called the [[Elder Darks]] while the [[Listeners]] who wished to observe and worship the great creature contested them. The [[Incarnates]] seem to have been Numen who drank the light too greedily. 

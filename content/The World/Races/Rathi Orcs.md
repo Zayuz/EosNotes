@@ -1,0 +1,3 @@
+A matriarchically led tribe of [[Orcs]] from the [[Rathi Isles]]. Woman lead their societies because of the importance that giving birth entails as well as their ability to listen to the 'voices of the dead.' The leader of their tribe is called a 'Bonereader,' and they practice ancestor worship as their faith. Bonereaders are excluded from romantic and family relationships, but are expected to lead the tribe politically and economically. For other members of society polyamory is the norm.
+
+In recent history, a 'great spirit' has spoken to the Rathi and wishes to lead them into a new era. 

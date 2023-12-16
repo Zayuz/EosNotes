@@ -1,0 +1,3 @@
+A dhampir servant and warlock of [[Razelighter]], the undead dragon that destroyed [[Lathyrus]]. Razelighter took him as a servant after destroying his homeland and receiving the broken man as an audience, where he clearly no longer valued his life any further. Taking amusement in his suffering, Razelighter gave him a pet pseudodragon called Fang that was the only thing the vampiric man lived for. He was carrying messages to be seeded across the realms for his dark god, who wished to falsify [[Dawnborn]] communications.
+
+He died during the [[Battle of Charrum Vale]], but [[Aurian]] believes that it is highly unlikely that Razelighter would let him be released in death.

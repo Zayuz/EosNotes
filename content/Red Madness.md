@@ -1,0 +1,1 @@
+An illness that is gained by those who use magic. While at first it merely prohibits the senses and poisons the body, it eventually causes extreme violent outbursts and presumably the transformation into a [[Shadow]] upon death. Red Madness can only be halted by [[Ambrosia]] or through the magic of [[Kovosh]], who absorbs the illness himself.

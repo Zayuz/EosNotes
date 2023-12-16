@@ -1,0 +1,1 @@
+Animal gods worshipped by the [[Teoka]]. Coincidentally similar to the [[High Ones]]? 

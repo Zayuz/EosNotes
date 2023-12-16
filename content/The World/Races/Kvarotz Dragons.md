@@ -1,0 +1,3 @@
+Translates to Moltenmaw
+
+Of all dragonkind, none are so fiendishly intelligent as the Kvarotz. Masters of artifice and metalworking, the Kvarotz forge all of the armaments the [[Dragon Empire]] needs to wage its bloody war across [[Eos]]. The heat generated within their glossy black scales is often so hot it begins to burn through their very skin, requiring the forging of special armour plating to contain their inner fire. Their sire is [[Sivax Morgath]], the Fleshforge.

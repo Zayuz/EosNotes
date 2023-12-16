@@ -1,0 +1,1 @@
+A land to the north-west of [[Lathyrus]], in [[Alderwyl]]. Inhabited by [[Ravkka Dragons|Ravkka Dragons]], the [[Deathseekers]], and the nomadic [[Teoka]] people. They are said to worship pagan animal gods known as the [[Teoka-Tal]].  

@@ -1,0 +1,3 @@
+A war that started in [[Eldremar]] in which the people refuse to be ruled by the [[Dawnborn]]. The war is lead by [[Halamar Sylnorin]], a high elf who claims to have fought and killed [[Cirral]] in single combat. 
+
+The war goes well for the rebels, who have sailed across the seas and taken the city of [[Lion's Arch]] for themselves. Their attacks strike parallel with the [[Dragon Empire]] assault on their borders, putting the Dawnborn in a difficult position.

@@ -1,0 +1,1 @@
+The cure to [[Red Madness]], said to be harvested in [[Eresséia]] and regulated by the [[Holy Order]]. Comes in the form of golden petals that tend to wilt quickly when stored improperly. 

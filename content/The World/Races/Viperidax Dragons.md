@@ -1,0 +1,3 @@
+Translates to Vilebrood
+
+In the wake of [[Nagasha]]'s ascension, a new brood of dragons emerged. Winding and serpentine, smooth, red, shifting scales that emit a low droning buzz, and elongated front fangs like those of a serpent. These 'Vilebrood' dragons, or Viperidax as is their true name,  rarely stray far from Nagasha herself, moving as a killer swarm of red wing beats ready to descend upon her enemies. These dragons had never been seen before the Rage of Dragons, leading many to speculate that they may be the result of dark magics or experimentation. Their sire is presumed to be Nagasha, the Dragon Empress.

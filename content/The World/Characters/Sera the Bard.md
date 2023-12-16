@@ -1,0 +1,1 @@
+Died during the [[Battle of Charrum Vale]]. 

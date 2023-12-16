@@ -1,0 +1,1 @@
+An event in which [[Blood Elves]] invaded the islands of [[Chyris]], resulting in blood elven victory over the native kingdoms.

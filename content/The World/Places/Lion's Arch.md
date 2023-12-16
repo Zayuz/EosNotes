@@ -1,0 +1,1 @@
+A city in [[Vyn]] ruled by [[The White Mantle]], an extremist sect of the [[Holy Order]]. They are on the border of the [[Dawnborn]] territory with the [[Dragon Empire]] and subsequently have a very militarized way of life.

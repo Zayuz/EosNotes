@@ -1,0 +1,1 @@
+After the fall of Lathyrus, the land of [[Alderwyl]] was transformed into the dreary Duskwind we know through one method or another. Weather the work of Gods, Dragons, or Darker influences, the beautiful landscapes are now wastelands and so many issues and scars plague the land that it is unrecognizable from its former self.

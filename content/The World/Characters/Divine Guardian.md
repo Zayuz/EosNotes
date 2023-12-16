@@ -1,0 +1,3 @@
+An extremely powerful construct made by the Valurens and imbued with the soul of their faithful mecha-warrior Garrius.
+
+Inscribed upon the heavy metal plates that adorn the so-called 'Divine Guardian', are the words "Forged in Flame, Bound in Stone. Divine Guardian. Keeper of Souls, Reaper of Tolls." Along the length of its blade, which itself is nearly 15 feet long, the words "Wrath and Judgement." are inscribed.

@@ -1,0 +1,1 @@
+The Dragoncrash is an obscure event that took place during the [[Rage of Dragons]], in which [[Charrum]] was slain by his siblings and his massive body collapsed into the land, creating what is now [[Charrum Vale]].

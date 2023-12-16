@@ -1,0 +1,3 @@
+An enigmatic object that is required to safely fire a [[Beacon]] and dispel the world's [[Shadow]]. [[Dawnborn]] estimates from the [[Valuren]] time [[Cleansings]] suggest that the closest known Numinos at the time was buried beneath [[Eresséia]], and would take 50 years to excavate.
+
+[[Prophet#Vision 3|Rose's earliest vision as a Prophet]] seems to be the best candidate for a Numinos. A sphere from the first civilization that can cure [[Red Madness]] at a touch... Was being used for [[Rose]]'s magical aptitude test as a teenager.

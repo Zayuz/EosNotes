@@ -1,0 +1,1 @@
+300 Years ago the dragons left to an unknown land - all of them. They had normal civilization and things before that. 100 Years ago they returned, and they were wicked and destructive. Their numbers upon return were significantly reduced.

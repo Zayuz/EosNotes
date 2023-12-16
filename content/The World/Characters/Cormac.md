@@ -1,0 +1,1 @@
+A stinky, unkempt dwarf with intel on [[Dawnborn]], [[Incarnates]], [[Shadow]], etc. Seemed to have lived in [[Lion's Arch]]'s slums in a deep depression since the disbanding of his party. Cleaned up rather well when the band was recollected, only to swiftly die at the hands of an [[Exorum Dragons|Exorum Dragon]] during the [[Battle of Charrum Vale]].

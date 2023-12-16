@@ -1,0 +1,3 @@
+A 'rain of fire and stone' from the heavens that struck Alderwyl between 1a 1b - 50a 1b, meaning that it happened within the first 50 years of the world existing at all. It is said to have battered down mountains and reshaped the canyons and caverns of the land. After the Starfall, the [[Evermoon]] rose into the sky and has remained there for millennia since above [[Mt. Cordys]]. 
+
+Lithiel suspects that this is when the [[Luminos]] landed on their world.

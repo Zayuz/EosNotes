@@ -1,0 +1,3 @@
+The only information we know about the Divinity Project is what we heard from Haelstrom:
+Can save us (the Valurens) from red madness
+If the machine core can... (muffled) LIES, nothing can save us from red madness, shadows will multiply infinitely and all life will die and it is inevitable. All countermeasures only delay the inevitable. IF we had the Numinos, we could wipe them all out - but its deep beneath Erressea. There are no survival options (50 years to excavate it). No life left with shadows is to be the world's fate. [[Oris|Oris's]] lies, to inspire millions to inspire millions to buy time for those done here with Shadowfall. Project divinity will plant new life.

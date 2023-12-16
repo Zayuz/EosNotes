@@ -1,0 +1,3 @@
+A monster that appeared from the rift deep inside [[Inodan]], defeated by [[Rose]] and [[Arazeal]] together in combat. [[Oris]] and [[Kovosh]] also witness the fight, and work to contain the rift. It strikes with blades that then explode inside the victim, dealing entirely psychic damage. It is the first thing to enter from the rift as long as Oris has been controlling it.
+
+![[Divine Mockery.png|500]]

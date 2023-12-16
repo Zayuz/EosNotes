@@ -1,0 +1,1 @@
+A hunter of [[Shadow]] that passed in battle. A hero known across [[Alderwyl]].

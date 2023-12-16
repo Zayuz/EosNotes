@@ -1,0 +1,1 @@
+A race of fish-folk said to have been created by [[The Ocean King]]. They reside in [[Merrowhome]], under the rule of [[Queen Galadi]]. Their culture tends to involve a lot of raiding and killing, though that seems to be on the mend.

@@ -1,0 +1,1 @@
+A farmer from [[Dawn's Crossing]] who sold us horses says we're welcome anytime because we killed an [[Exorum Dragons|Exorum Dragon]] and actually returned and properly bought our horses from him after he lent them to us.

@@ -1,0 +1,3 @@
+Translates to Needlefang
+
+Similarly to the Aureate, the Natolan Brood defy the [[Dragon Empire]] openly. While they do not fight against them, they refuse to fight in Nagasha's armies and remain secluded on their island home, and it is unknown why they have not met the same grisly fate as their cousins. The Needlefang's skin is a rich green, dotted with sharp spines and needles between their long, thin scales that have seen them described as 'cactus dragons' by less educated folks. They are wilful and independent, always doing things for reasons few can claim to understand. Their sire is Hesperaxxes, the Blightstorm.

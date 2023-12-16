@@ -1,0 +1,2 @@
+An ancient [[Beacon]] located deep beneath [[Merrowhome]], guarded by countless aquatic [[Valuren]] constructs.
+Seems to be the location that [[New Dothulgrad]] was based on. This location was known about by [[Scrimshaw]], who recommended that we visit it. The [[Shadow]] that possessed him therefore also likely knows about it.
