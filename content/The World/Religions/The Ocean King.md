@@ -1,0 +1,1 @@
+An ancient god of the sea, revered as the creator of the [[Merrow]]. At some point [[Scrimshaw]] claimed his identity and lived as king of their people, and it is unclear what became of the original Ocean King if they existed at all.
