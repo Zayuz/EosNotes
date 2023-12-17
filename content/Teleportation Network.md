@@ -12,4 +12,4 @@ Primus - [[Ark]] and [[Primus Academy]]* (Symbol Owned)
 
 Takes no spell slot when at a statue, but a lv5 spell slot otherwise.
 
-*The party has never been here, but using the Helotry spell, someone who has been there can cast Teleportation Network through Lithiel and takes us there.
+``*``The party has never been here, but using the Helotry spell, someone who has been there can cast Teleportation Network through Lithiel and takes us there.
