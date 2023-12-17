@@ -1,5 +1,5 @@
 ---
-title: Welcome to Quartz
+title: Welcome to Eos
 ---
 These notes track the progress and information gleaned by the party during the Eos campaign hosted in 2023-2024 by Dylan Romero.
 
