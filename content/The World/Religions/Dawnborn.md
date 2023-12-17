@@ -26,6 +26,9 @@ The fourth discrepancy can be understood by reading the page for the [[Divinity 
  - [[Iara]]
  - [[Oris]] 
  - [[Haelstrom]]
+ - [[Kovosh]]
+ - [[Xen]]
+ - [[The Wolfmother]]
 
 ### List of Unencountered Dawnborn
  - [[Sidon]]
@@ -46,12 +49,9 @@ The fourth discrepancy can be understood by reading the page for the [[Divinity 
  - [[Enigma]]
  - [[Esika]]
  - [[Rhinther]]
- - [[Kovosh]]
  - [[Primus]]
- - [[Xen]]
  - [[Shugo]]
  - [[Respen]]
- - [[The Wolfmother]]
  - [[Mestarine]]
  - [[Ballas]]
  - [[Cirral]]
