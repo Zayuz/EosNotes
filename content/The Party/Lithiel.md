@@ -186,7 +186,7 @@ Tim-o-thee and Quendoline want a different post instead of Wolf's Durge. Will pa
 
 A group of people, hierarchy unknown, of high ranking orders and bishops that disapprove of our mission. They believe we will plunge the world into further chaos. They are very angry with us.
 
-Wolfmother's Embrace - settlement made by frost giants to venerate their goddess, now inhabited by humans after they moved on. We understand the crazy changing weather of Narthaxxus is something to do with elemental wars according to legend. Occupied by shifters mostly and humans who do not remember the holy order fondly. Their native beasts of burden are called Gurem - a mix of dinosaur, polar bear, and ox. They are humongous. Sometimes they even place their settlements above two of them bound closely. Docile when well fed, very dangerous when enraged.
+Wolfmother's Embrace - settlement made by frost giants to venerate their goddess, now inhabited by humans after they moved on. We understand the crazy changing weather of Narthaxus is something to do with elemental wars according to legend. Occupied by shifters mostly and humans who do not remember the holy order fondly. Their native beasts of burden are called Gurem - a mix of dinosaur, polar bear, and ox. They are humongous. Sometimes they even place their settlements above two of them bound closely. Docile when well fed, very dangerous when enraged.
 
 Huge ice pillar in this city contains something? But it is a remnant of a war between the giants and something dark from the era of dusk. Likely an enemy encased in ice, and there are many of them around in the mountain range, but not in the city.
 

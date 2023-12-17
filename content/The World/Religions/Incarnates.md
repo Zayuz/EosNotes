@@ -1,4 +1,6 @@
-One [[numen]] who feasted upon the power of the [[Luminos]], they found themselves twisted and changed into something unlike themselves once it was done. Fighting the [[War of Dawn and Dusk]] amongst themselves, the Incarnates eventually won and had their people destroyed. Their enemies are now known as the [[Watchers]], [[Listeners]], and similar groups that guard the prisons of the [[High Ones]]. 
+They were once [[Numen]] who feasted upon the power of the [[Luminos]], and found themselves twisted and changed into something sinister and twisted. Fighting an unnamed war amongst themselves, the Incarnates eventually lost and were driven into hiding by their people. What remains of the numen are now known as the [[Watchers]], [[Listeners]], and similar groups that guard the  [[High Ones]] so that nothing like the incarnates may ever rise again. Each high one represents some negative aspect, and they all feature an aspect and name a single champion with several lieutenants at any given time. They can still pass for human under some circumstances, despite their monstrous nature.
+
+Later on, the [[Dawnborn]] defeated them again in the [[War of Dawn and Dusk]], which they used to conquer and enlighten Eos. Only Razikale remained undefeated, as she went into hiding when she realized they were bound to lose.
 
 Known Incarnates include:
 [[Razikale]], the Lady of Obsession. Her follows serve in the [[Cult of the Mirror]]
@@ -10,9 +12,6 @@ Known Incarnates include:
 [[Andoral]], ??? Cult of Perfection?
 
 [[Lusacan]] was chained up in the area called [[Lusacan's Fall]], no big shock. It was mentioned in the Alderwyl region guide that the [[Dragon Empire]] has that entire area well fortified. 
-
-Incarnates share some similarities with Shadows, in that Florian's Mask can detect their presence and corruption. [[Vora]] openly admitted to being flooded with Shadow, and insisted that it did not compromise her humanity before her death. 
-
 
 ### Malphas Binds the Incarnates
 [[Malphas]] encountered many of the Incarnates feasting upon the [[Luminos]] at once and bound them all in a permanent time-stop spell. This has more or less saved the world since he did it. Given that they seem impossible to permanently kill, this was a very smart thing to do.
