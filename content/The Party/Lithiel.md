@@ -156,8 +156,6 @@ Seven keys overall!
 
 Oris knows how the gods became gods.
 
-The other three duskborn are Zazikel, Dumat, and Andoral. 
-
 Are the duskborn making the shadows? No, but they are related. We believe the shadows to be manifestations of magic itself that are undoubtedly connected to the high ones. Duskborn are magically overexposed, maybe connected if magic comes from the high ones. (Malphas)
 
 What is below bral? Malphas does not know, he has never been.
@@ -286,26 +284,7 @@ Lady Azura - Diplomatic Envoy to the Cult of the Rook in the whisperwood 14 days
 Tremel the Pet Imp, he is pink and friendly! He's a hellspawn
 Tremel cookie - A smore
 
-
-Beatific/Malefic Palace is Razikale's realm. We can't find her because we lack the keys.
-Razikale likes cycles of debauchery leading to ruin.
-
-Find 4 memories of Shiloh's predecessor for Arazeal to unlock his skill tree. Reihan is the name.
-She was from before the rage of dragons, and her companion was ... She participated in the fall of Lathyrus. In Lysandre's journal she mentions that she was besties with Lusacan. They were his greatest friends while sane. They went on picnics and discussed politics with the holy order. (Note - 'That Malphas guy sure is  a piece of work, huh?') Went to the eerie with those two... Might be the last time I see my friends before...
-Ourea knows Reihan, and knows where the eerie is. During the fall of Lathyrus, Reihan was sundered. (Her soul.) It was Lusacan's doing. Lusacan was a great friend of theirs. 'Incarnates are mysterious... Keep in mind that my husband was Razikale and not Lysandre. The Lusacan we know was not always host to such malignance.' She thinks the incarnate is possessing the incarnate, and is actually named something else. Lusacan was the former king of dragonkind with his consort Nagasha. 
-
-The Eerie is a massive tower that the wish restored, and is where the angels used to stay. It has a sky jail like the one in game of thrones. Time slow effect? Ghosts of Reihan (katana), Lysandre, and a red scaled dragonborn with a mane of fur down his back in a big cloak. They overlook Lathyrus, it is thriving. There be people and friendly dragons everywhere. 
-Dragonborn: 'its a shame, I half expected this to be a fun reunion'
-Rei: 'Yes, well... At least we have each other.'
-Lysandre: 'Well, if this is to be our last meeting for the foreseeable future lets make the most of it. Who wants to go sky racing?'
-They agree and dragonborn becomes a huge dragon (size - ancient+)
-Lysandre sprouts angel wings (aasimar), and Reihan's sword etching of a Pegasus becomes a mount for her to fly.
-
 Alicia asked everyone to forgive Lithiel, which is very sweet.
-
-Roofian is a Kvarotz dragon which means his fire burns too hot for his flesh, and he will burst unless dragonsteel is used to reinforce his body. 
-
-Azura is Toth's prophet. 
 
 Scrimshaw is back, and he mentions he has fond memories of Lathyrus. He is cured of shadow and feels grateful and he wants to help! 
 He tells us of a few of Oris's artefacts
@@ -313,3 +292,16 @@ Blood elves Khyris - Cloak
 Wolf mother - Bow
 Razelighter - Horn
 Scrimshaw is now vibing in the courtyard
+
+
+The Evermoon is a peaceful, bountiful land with wildlife around it. The moon is about the size of a city. Feels like static electricity near to it... 
+The Whisperwood has a memory curse that disorients you, and is considered a (fear or charm). We met a cute water guy who copies us sometimes and is friendly. They find gender confusing, as does Lithiel.
+We saw a small squirrel guy in the trees? We encountered a squirmel, half-squirrel half-cat little guys. These ones are from the Wild Hunt. Lord Herne is here with Archdruid Felanthe! They take us to him, and have heard of Lithiel. The trees whisper that Lithiel is here to cause harm... They think she's part of the cult of the rook. This is the Rootwoven sanctuary. The camp is obscured from the outside with magic. Based on the map of the forest, we understand it is magically artificial and influenced by the fey. Archdruid Vargoth is here and had fallen under Toth's sway... He is now one of Toth's Luitenants, and is corrupting a dryad grove. All of his people are good people now corrupted, and if we defeat Toth we can save them. Minotaur Archdruid is one - invading a druid burrow. Gnoll (not trick), aarokocra that willingly serves, a hag, and an archdruid who is permanently wildshaped to owlbear named Ariel. 
+
+Azura is Toth's prophet. 
+
+Progenitor ruins under Whisperwood...
+Room that the roots avoid, with lots of shapes and stuff in the shapes of roughly humanoid. The corruption spread through here and Toth's followers killed the constructs. He's made of an alloy of stone and metal, like ore? There is a building there that's long abandoned, but we do not have time to investigate it. 
+
+With each threat unravelled, a step closer to my realm. 
+Pluck their wings, leave them broken.

@@ -1,6 +1,24 @@
-[[Razikale]]'s whereabouts are unknown. Her influence vanished after [[Lathyrus]]'s fall. She is presumed banished or locked away. [[Urthemiel]] was the first of [[Alderwyl]]'s incarnates to be locked away. He was sealed deep below the ground somewhere in Lathyrus's borders. He is responsible for the souls of the dead becoming wraiths in Alderwyl and is more than likely the source of [[Freyalise]]'s power. [[Toth]] was not imprisoned in the same way as the others, instead his spirit was sundered and bound _inside_ the [[Whisperwood]], where he remains as a source of natural corruption and desiccation within Alderwyl's wild places. [[Lusacan]] was chained up in the area called [[Lusacan's Fall]], no big shock. It was mentioned in the Alderwyl region guide that the [[Dragon Empire]] has that entire area well fortified. The people of Alderwyl attribute the [[Rage of Dragons]] to Lusacan's influence somehow.
+One [[numen]] who feasted upon the power of the [[Luminos]], they found themselves twisted and changed into something unlike themselves once it was done. Fighting the [[War of Dawn and Dusk]] amongst themselves, the Incarnates eventually won and had their people destroyed. Their enemies are now known as the [[Watchers]], [[Listeners]], and similar groups that guard the prisons of the [[High Ones]]. 
+
+Known Incarnates include:
+[[Razikale]], the Lady of Obsession. Her follows serve in the [[Cult of the Mirror]]
+[[Urthemiel]], the sire of Undeath. His followers serve the Lich Queen [[Freyalise]] in Lathyrus.
+[[Toth]], the Lord of Wrath. His followers serve in the [[Cult of the Rook]].
+[[Lusacan]], the Lord of Rage. His followers serve [[Nagasha]] and the [[Dragon Empire]]
+[[Zazikel]], ??? Cult of the Storm?
+[[Dumat]], ??? Cult of Blood?
+[[Andoral]], ??? Cult of Perfection?
+
+[[Lusacan]] was chained up in the area called [[Lusacan's Fall]], no big shock. It was mentioned in the Alderwyl region guide that the [[Dragon Empire]] has that entire area well fortified. 
+
+Incarnates share some similarities with Shadows, in that Florian's Mask can detect their presence and corruption. [[Vora]] openly admitted to being flooded with Shadow, and insisted that it did not compromise her humanity before her death. 
 
 
-[[Razikale]]'s followers are the [[Cult of the Mirror]]. [[Toth]]'s followers are the [[Cult of the Rook]]. [[Urthemiel]] has no organized cult following (except the wraiths of Freyalise?). [[Lusacan]]'s followers are just the [[Dragon Empire]]. 
+### Malphas Binds the Incarnates
+[[Malphas]] encountered many of the Incarnates feasting upon the [[Luminos]] at once and bound them all in a permanent time-stop spell. This has more or less saved the world since he did it. Given that they seem impossible to permanently kill, this was a very smart thing to do.
 
-Incarnates share some similarities with Shadows, in that Florian's Mask can detect their presence and corruption. 
+While reaching for the light of the [[Luminos]] through the roots of the [[Twinslove]] Woods, [[Toth]] noticed [[Malphas]] attempting to trap him and began to flee, causing him to be only mostly trapped in time. His mind was free to think and he managed to leak much of his essence out through the roots.
+
+To contain the Incarnates, Malphas used thousands of tenth level protection spells featuring the following rune. It originally glowed RED BLACK BLUE PURPLE YELLOW ORANGE GREEN. However, since we severed a root connecting to the shield wall, green has vanished and Toph seems to be liberated now that no part of him is connected to the spell. The rune seems to vastly increase the caster's AC in the same way that shield does, and disintegrates any material object on contact with it. It is a 10th level spell.
+
+![[Malphas's Protection Spell Rune.png]]

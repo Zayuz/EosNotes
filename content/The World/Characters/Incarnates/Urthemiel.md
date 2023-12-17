@@ -1,0 +1,3 @@
+The first of [[Alderwyl]]'s incarnates to be locked away. He was sealed deep in the [[Dread Vault]] below Lathyrus Palace. He is responsible for the souls of the dead becoming wraiths in Alderwyl and claims the beautiful [[Freyalise]] as her champion. His champions are known as 'Lich Kings/Queens', and raise the dead as wraiths to do their bidding. This process if terrible for the souls of the deceased, and the [[Deathseekers]] take significant issue with it.
+
+[[Lithiel]] signed a contract with Urthemiel through [[Scrimshaw]], becoming his Lich Queen and uncursing her tome that she claimed from Freyalise. The soul-deal will end when Urthemiel enters the world again and all the other Incarnates are dead.

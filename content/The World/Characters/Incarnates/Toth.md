@@ -1,9 +1,4 @@
-The Incarnate of Hate and corruption, who takes the form of an all consuming ooze. He is known to be sealed under the [[Whisperwood]], but his corruption persists faintly across all the forests of [[Duskwind Map.png|Alderwyl]]. 
+The Incarnate of Hate and corruption, who takes the form of an all consuming ooze. He is known to be sealed under the [[Whisperwood]], but his corruption persists faintly across all the forests of [[Duskwind Map.png|Alderwyl]].  He was not imprisoned in the same way as the others, instead his spirit was sundered and bound _inside_ the [[Whisperwood]], where he remains as a source of natural corruption and desiccation within Alderwyl's wild places. His physical form was caught in Malphas's spell, but partially free. This allowed him to permeate to other places despite being sealed away.
 
 
 ![[Toth's Depiction.png|200x200]]
-
-### Feasting Upon the Luminos
-While reaching for the light of the [[Luminos]] through the roots of the [[Twinslove]] Woods, he was prevented from reaching it in some manner by [[Malphas]], causing him to be trapped. To do so, Malphas used thousands of tenth level protection spells featuring the following rune, which originally glowed RED BLACK BLUE PURPLE YELLOW ORANGE GREEN. However, since we severed a root connecting to the shield wall, green has vanished and Toph seems to be liberated in some way. The spell seems to vastly increase the caster's AC in the same way that shield does, and disintegrates any material object on contact with it.
-
-![[Malphas's Protection Spell Rune.png]]
