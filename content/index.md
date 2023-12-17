@@ -5,6 +5,7 @@ These notes track the progress and information gleaned by the party during the E
 
 As a temporary fix to the issue of mobile being inaccessible, I will provide a sample link to each 'section' of the wiki for navigation purposes.
 
+#### The World
 [Incarnates](https://eosnotes.pages.dev/The-World/Characters/Incarnates/)
 [Gods](https://eosnotes.pages.dev/The-World/Characters/Gods/)
 [Characters](https://eosnotes.pages.dev/The-World/Characters/)
@@ -15,5 +16,13 @@ As a temporary fix to the issue of mobile being inaccessible, I will provide a s
 [Places](https://eosnotes.pages.dev/The-World/Places/)
 [Races](https://eosnotes.pages.dev/The-World/Races/)
 [Religions](https://eosnotes.pages.dev/The-World/Religions/)
+
+#### The Party
+[Conversations](https://eosnotes.pages.dev/The-Party/Conversations/)
+[[Amelia]]
+[[Florian]]
+[[Lithiel]]
+[[Rose]]
+[[Shiloh]]
 
 And finally, our [[Teleportation Network]].
