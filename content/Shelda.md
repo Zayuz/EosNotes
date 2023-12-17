@@ -1,0 +1,1 @@
+The trad wife of Fimben Featherfall, and [[Florian|Florian's]] step mom. She hates [[Amelia]] for an unknown reason, but quite likes the idea of him being with literally anyone else - especially Lithiel because she was a 'nice young woman' (had her tits out).

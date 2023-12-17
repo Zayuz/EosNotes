@@ -1,0 +1,1 @@
+A hunter of [[Shadow]] that passed in battle. A hero known across [[Alderwyl]]. He resides in the [[Blade Grove]] as a ghost. He is married to [[Shelda]].

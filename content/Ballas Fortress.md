@@ -1,0 +1,1 @@
+This is a fortress on [[Vyn]] associated with [[Ballas]], god of misfortune.
