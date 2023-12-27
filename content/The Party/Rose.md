@@ -3,6 +3,8 @@ She is considered to be a [[Prophet]] by [[Malphas]].
 
 Rose is supposed to visit [[Inodan]] with [[Tassia]] to meet [[Oris]], who she has felt a strange connection to when visiting her shrine. However, the event [[Tassia#Denied Inodan|Tassia denied Inodan]] transpires and Rose must enter alone for the event [[Rose goes to Inodan]].
 
+Later, when the party explored [[Wolfmother’s Embrace]], Rose gained an audience with the [[Watchers]] in the following conversation about the nature of the [[High Ones]] and their motives: [[Rose Meets the Watchers]]
+
 
 
 ### Is Rose a Dawnborn?

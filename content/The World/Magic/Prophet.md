@@ -1,6 +1,6 @@
 A Prophet is a character connected to the [[High Ones]], who takes the place of a deceased individual with their memories and identity yet is not them. According to [[Malphas]], they are notoriously hard to kill and he does not look forward to their arrival. In fact, all other Prophets have been eliminated by Malphas as part of the reason for the [[Holy Order]]'s pursuit against magic. This is because all Prophets have magical talent, and thus this way they are caught with the widest net.
 
-> "We cant have another prophet show up"
+> "We cant have another prophet show up."
 > 	- Malphas (Intel via Cormac)
 
 From [[Rose]]'s experience, Prophets are plagued by horrifying visions and visitations from the [[High Ones]]. 
@@ -11,7 +11,10 @@ The Rebellion was investigated for the presence of a Prophet, which are currentl
 Leader of the Church of the Holy Order is known as a True Prophet. May or may not be the same as Rose.
 Quote above by Malphas about Prophets not being something he enjoys encountering.
 
-The temple of the Prophet Althaxis may be connected to [[Prophet]]s, in territory of the Wolf Mother.
+### Other Prophets
+The temple of the Prophet Althaxis may be connected to [[Prophet|Prophets]], in territory of the [[Wolf Mother]]. 
+During combat, a link between [[Rose]] and [[Freyalise]] suggested that she may also be a Prophet.
+
 
 ### Visions
 ##### Vision 1

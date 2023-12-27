@@ -2,4 +2,10 @@ An incredibly attractive, immortal elven sorceress who considers herself the 'Fi
 
 We have known her to summon colossal undead dragons known as Leviathans to her side, and interrupted a ritual to raise one early into our adventures in Duskwind.
 
-Freyalise considered herself the legal heir to Alderwyl. 
+Freyalise considered herself the legal heir to Alderwyl. When asked to explain this, she seemed to suggest right of conquest.
+
+She uses [[Urthemiel]]'s magic to corrupt angels like [[Vyra]] and twists them into her undead servants.
+
+
+#### Potentially a Prophet?
+During combat with the party, Rose felt a psychic connection with Freyalise that made them mutually wince in pain. They both took psychic damage, but this could not be explored in the heat of combat.

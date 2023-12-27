@@ -1,0 +1,35 @@
+Rose places her hand upon the large doors, that supposedly answer to prophets. Machinery stirs, and the door glows with the light of the high ones. The spider, bear, and wolf are carved in the door. 'First Prophet to step in this hall in many centuries.' 
+Becomes a cave! Icy pillars hold it up. Three giant, robed figures within with elaborate armor and things. ![[Pasted image 20231021222128.png]]
+
+'AWAKE.'
+Each float to a pillar. 
+Left - 'FOLLOW'
+Carved Mural on this pillar in rune.
+'Fall' is the name of the Mural. 
+![[Pasted image 20231021222634.png]]
+Top right - Old Dthuulgrad or another like it?
+Top left - Oris angel form? Maybe a rift that Oris is preventing? Very spooky angel things.
+Middle - aliens descending upon the world to destroy it. They attack specifically a root?
+
+
+'SERVE' the guy says on the right.
+Known is the name of the right pillar. ![[Pasted image 20231021223025.png]]
+Space ships above, dark and light people like in Braal? False sun on the top right? An enslaved world?
+
+'OBEY' says the guy in the middle.
+'Beacons' is the name of this mural. ![[Pasted image 20231021223301.png]]
+Huge spooky shadow guy on the left. Maybe a drop pod or induction... Is that inside the ship on the left? Top right is two guys, light and shadow in ying yang. Could be people returning after the purge. New life for each unknown cycle, could beam into the core of the world.
+
+We know that Fall, Known, Beacons is the correct order.
+Are you from another world? No. 
+Do you serve the high ones? No.
+Is there more to be shown? Ice cracks.
+There is a great eye in the floor that watches us. It IS one of the things in the mural. The aliens. 
+Rose covers the eye.
+Is the main planet ours? No.
+Is this the past? They all answer differently.
+All the other pillars depict the same events with slight variations on the main three. 
+These are historical, biblical accounts written in giant. Describing a time of great turmoil where something fell from the sky and shook the earth. The luminos crashed and then decades later something shook the earth. Countless cycles where life is wiped away in flashes of light. 
+These groups are not listeners - they are watchers and they cannot communicate normally. 
+We give them paper, and they communicate very well now! They have been waiting for Rose, the Prophet, to come in many centuries. You must have no end of questions. We will answer as we can, but know that we are bound by ancient oath. We only hold part of the answers you seek. The listeners hold the other, and there are more besides. 
+They know of the Numinos. It is the key to stopping the cycle. They do not know where it might be found. It was lost along with our empire. Can we create a new Numinos? Not that we know of. What do the carvings depict? The cycle. Are the tentacle creatures the high ones? Yes. Is our world unique? Only in that this is the first time the cycle has been delayed. They do this to countless worlds. How is the Luminos related to the high ones? (This requires a high persuasion roll) We believe it is one of them. The Luminos has never woken, and they do not know if it is a free agent or hostile. The others seemed to come separately. Though this creature below the ice would be able to grant powers like the Luminos, it is not advised. The creatures in the area has drank of them. The other Incarnates may have come from here? Is it normal for there to be two or more high ones trapped on one planet? No. WE trapped this one. The DAWNBORN for sure are the reason the cycle has been delayed. Is there a connection between high ones and arcane fever? Yes. Is it possible to disentangle the two? Unclear, magic comes from them. They are the source of what you know as magic. Before them, there was only runes. The eyeball flares up from beneath and it lights up everything through our cover. It is stirred by our chatter. Can we help you strengthen the ice? We do not know. This cycle may be at its end. What is your oath? During the end of the first era, those who survived swore to protect these places and this world. We divided our knowledge amongst our sects and ceased contact. Awaiting a time when the cycle could be stopped for good. Do you think we are close to that time? You are the first prophet to comprehend your origin. What happens to the prophets that are not killed? They are cleansed with all the rest. Is Rose more than people? Rose is no more a person than a golem. A simulacrum to serve the whims of the high ones. How she has retained her autonomy is unprecedented. Prophets have exhibited extraordinary abilities through history, we can help her unlock those abilities. Litihel fears that this may make her less autonomous, personally. Prophet powers correspond to the giants, and she picks between two unique paths: Form and Essence. Progression will result in unique powers and understanding. The deeper you go down this tree, the easier it will be for the high ones to manipulate you with the most powerful items being reserved for working with the high ones sincerely. To delve further, visit other giants. No matter what, your destiny lies below in the Heart of the Dark. It is the oldest place in the world, where life has/does/will come from. Beyond time and space. Beginning and the end. What remains of the progenitors. On the underground map, we can investigate this further via progenitor ruins. Rose mentions her dreams - what is the significance of the bear/wolf/spider? Three distinct high ones may be attempting to control her. Is there a third high one bound in our world? Not that I know of. Golden orb? That is a progenitor sphere. They are keys to extremely ancient and powerful magics. What are progenitors? The first, who build the world and the runes initially. Maybe the runestones are built by the progenitors and not giants... Do you understand how the shadows of Braal interact with the Luminos's light? The tragedy of Braal is a bitter memory. What you are seeing are likely fading long dead remnants, echoes of a time long gone. Remember that the progenitors - the dark and deep are beyond time and space. Why do the high ones do cycles? We don't know for sure, but our scholars debated that it may be reproduction or conquest or entirely unknowable. We are not the first or the last. Do the ships in the mural travel space? They are not ships. They are unknown. Who are the ying and yang? They are what remains, the silent echoes like Braal. Victims of an endless cycle of cleansing and rebirth. The thing below the ice invades Rose's thoughts - "FOLLOW SERVE OBEY. FREE." It has woken up the thralls! They believe Shadows are from Alderwyl. Each land has its own specific infestation. After discussing with Amiren, seek out the thinkers. They are in a land far to the south where the heat of the false sun burns the hottest. (Sediin) They vanish when we say goobye.
