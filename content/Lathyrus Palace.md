@@ -1,0 +1,1 @@
+Lathyrus Palace had a basalt and copper throne, as well as several open-sky ceilings to allow angels to fly in and out. When we visited, we found the blood of Lysandre himself below the throne... Lithiel kept some. She restored a huge statue of Lysandre, and we have seen another like it in Lithiel's tower basement.

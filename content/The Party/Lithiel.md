@@ -8,6 +8,15 @@ Rather motivated to learn about the evils afflicting her homeland, she studied t
 
 Lithiel is somewhat uncooperative. She's never operated with others, trained by herself her entire life, and any family she has sooner tried to kill her than help her flourish. Despite this, her presence is rather high. She is driven, capable, and well intentioned and this makes people tend to follow her lead. 
 
+"Seize your birth right" - Razikale to Lithiel upon donning the crown
+
+#### Visions
+Lithiel sees a year in advance with her violent divination potion... These will be events if we dont alter the world!
+Three events:
+Lathyrus - Restored and rebuilt with angels and Lithiel on the throne and Freyalise's Crown on (not corrupted) UNTIL a loud sci fi whir and blast goes off. From across the sea a giant pillar of light fires and there's a huge flash EAST.
+Ark on fire with shadows rampaging through the streets with armies clashing. Statue of Malphas is a beacon. Holy order vs ???
+Evermoon HATCHES ???
+
 ### Backstory
 There isn’t much for the living in Alderwyl. Nothing but desolation and anarchy, wraiths and monsters, and very occasionally a town that maintains soil and infrastructure enough to grow crops to be turned into the famed brandy of a dead empire. A truly fortuitous place to be born for a young lady, growing up in the village of Paradyse under martial law by the Dawnborn who themselves barely maintain a presence. Better, her single mother was a devotee of Razikale, the Duskborn of Obsession and Sex. She didn’t have any good role-models, and her mother even found her to be blessed by her demonic goddess for the unusual body she was born with as a hermaphrodite. This was a curse, as it made her mother pay more attention to her than she ever wanted, but it was also a blessing in that her mother invested actual skills into her daughter - the only one of six to get her attention. She was taught to read and write, to learn the ways of demons and fight for her proper place as the target of five other envious rivals. 
 
@@ -102,72 +111,14 @@ Debunked when they clarified that they were holy order and that they were workin
 Relocated to [[Rose#Is Rose a Dawnborn?|Rose, The Dawnborn]].
 
 ### Unsorted Session Details
-The rite of the ancients, indefinitely slay the dead and send them to the paths eternal and tie them to Arazeal.
-Shiloh Becoming First Deathseeker, Hand of Arazeal
-Dawnborn- Merciful
-Ancients- Wise
-Arazeal- Leader
-
-Freyalise uses wraiths as a warlock of an ancient evil believed long gone... Urthemiel?
-Vault beneath the Deathseeker sanctum - arms/wealth/armour, all have Azazael's crest and made of white metal inlaid with gold. Ancient armaments of the Lightseekers, not used since the war of dawn and dusk.
-
-Urthemiel was defeated in the war of Dawn and Dusk by Malphas
-
-Sealed beneath Lathyrus in the dread-vault. After Lysandre's betrayal they were unable to ensure the prison was unopened, and he may have broken free. The soul of a very powerful warlock (Freyalise) may help him leave...
-
-New mission for Shiloh! The last second (Reihan) perished in the war of Dawn and Dusk, and her soul was shattered. To truly take her place, get all the pieces of her soul to transfer the powers to Shiloh.
-
-Amiren told us that the Numen learned runic magic from the Ancients, and this seems to be related to how the Dawnborn invoke their blessings?
-
-Light seeker Mural
-Apparently the Light seekers served the Dawnborn more directly, and then became the Deathseekers for an unknown reason.
-![[Pasted image 20230901184907.png|400]]
-
-
-Statue of Lysandre in the basement of Lithiel's tower and the main palace, the blood of his death here. Basalt and copper throne. 
-
-"Seize your birthright" - Razikale to Lithiel upon donning the crown
-
 Lithiel claims that her god is Lysandre to Shiloh, and assures him that her goals (killing undead and ridding the world of Tyrants is the same)
-
-The mask reveals that Urthemiel is of shadow origin
-He claims peace is a lie seeded by false gods
-Wraith energy is perverted shadow energy???
-
-Razikale claims he has the heart of Lathyrus
-The heart of Lathyrus is a key to many things. Ancient relic, gifted by malphas to lathyrus and the other kingdoms. Heart of X. Defend these from dark entities. He believes his paranoia and delusions are dark forces attempting to steal the orb. Believed the holy order coveted it. 
-
-Lithiel sees a year in advance with her violent divination potion... These will be events if we dont alter the world!
-Three events:
-Lathyrus - Restored and rebuilt with angels and Lithiel on the throne and Freyalise's Crown on (not corrupted) UNTIL a loud sci fi whir and blast goes off. From across the sea a giant pillar of light fires and there's a huge flash EAST.
-Ark on fire with shadows rampaging through the streets with armies clashing. Statue of Malphas is a beacon. Holy order vs ???
-Evermoon HATCHES ???
-
-Florian can see his dad as his guide in the sword realm. All shadow hunters have a guide like him.
 
 Razikale is an incarnate. The most cunning, only uncontained. Heart of Lathyrus is a part of the network of keys used to do many things - only way to break the barrier? The barrier around the luminos. All of them are required to break the barrier... The others were under bigger guard after Lysandre's betrayal. 
 If the barrier broke it would be the end of the world.
 
 Rhinther disappeared with Erresseia. 
-Seven incarnates - Ward STOPS TIME. A thousand years for us, a few seconds in the barrier. 
-Seven keys overall!
-
-Oris knows how the gods became gods.
 
 Are the duskborn making the shadows? No, but they are related. We believe the shadows to be manifestations of magic itself that are undoubtedly connected to the high ones. Duskborn are magically overexposed, maybe connected if magic comes from the high ones. (Malphas)
-
-What is below bral? Malphas does not know, he has never been.
-Malphas's Fave color is Magenta
-
-Floor 1 of Academy
-Halls of Abjuration, Conjuration, Divination, Enchantment
-Floor 2
-Illusion, Evocation, Necromancy, Transmutation
-Floor 3
-
-
-Floor 4 and 5 are education halls
-
 
 Found the Malphas Teleport Circle in the palace
 80% chance that we all died in lathyrus (Arazeal), he says it was worth the risk to fully stop the undead
@@ -183,23 +134,6 @@ Tim-o-thee and Quendoline want a different post instead of Wolf's Durge. Will pa
 "There are forces working from within the order that are working against you. I believe one of you may be compromised. Contact me when nobody is listening." - Tassia in a secret note to Florian
 
 A group of people, hierarchy unknown, of high ranking orders and bishops that disapprove of our mission. They believe we will plunge the world into further chaos. They are very angry with us.
-
-Wolfmother's Embrace - settlement made by frost giants to venerate their goddess, now inhabited by humans after they moved on. We understand the crazy changing weather of Narthaxus is something to do with elemental wars according to legend. Occupied by shifters mostly and humans who do not remember the holy order fondly. Their native beasts of burden are called Gurem - a mix of dinosaur, polar bear, and ox. They are humongous. Sometimes they even place their settlements above two of them bound closely. Docile when well fed, very dangerous when enraged.
-
-Huge ice pillar in this city contains something? But it is a remnant of a war between the giants and something dark from the era of dusk. Likely an enemy encased in ice, and there are many of them around in the mountain range, but not in the city.
-
-The statue is the tower. The last prophet to visit was 'put on a spike'
-
-Amelia and Lithiel threw a tree for a big big (holy) pupper
-
-Mountain looks like it was split in two at a ravine
-
-The structure here in the ravine is one of the greatest megastructures in the world! Similar in scope to the sun temple. Large ice things along the way. Two bridges, where one is engulfed in this and the other is clean. The giant pillar of jagged ice on the other bridge has a monster within that is not fully trapped due to the chaotic construction of its ice prison. Huge freaky guy. They're not shadows... They may be from a prior cycle given they fought with the giants. Some of them are smaller, and appear similar to the larger ones. The shaman calls them Thralls.
-
-We met a blind oracle who lead us inside, she had a really big headdress. The people here found texts within, runes carved into stone that spoke of beings from beyond the stars and ancient prophecies. Creatures from the deepest abyss. 
-
-Shaman says rose is interesting for ignoring the advice of her masters. Why does she guard this place? She is the only one who could. Why do the Dawnborn not stay in Narthaxxus? This place is a disease, and the weather is a symptom. She is 'but a humble guide.' 
-When was the last time you brought anyone down here? Three or four months ago. (Maybe the one they impaled?)
 
 The rebellion has taken Dawn's Crossing, and they come for Ark within the fortnight. The inner circle is mobilized and Malphas is attempting to broker a peace before they siege the city. They have slain a dawnborn (for sure), but what they intend to do with our world is horrible. Tear down that which has protected them for millennia. What should be done?
 

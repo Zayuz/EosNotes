@@ -1,0 +1,2 @@
+[[Arazeal]] invoked this ancient rite to allow the party to permanently slay the wraiths that [[Freyalise]] was raising from the dead. 
+It sends them to the [[Paths Eternal]], where Arazeal can ensure their souls are unable to be used for necromancy.

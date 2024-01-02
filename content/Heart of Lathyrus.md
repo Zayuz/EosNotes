@@ -1,0 +1,3 @@
+Ancient relics that keep the Incarnates imprisoned in time via Malphas's spell. It seems that there are 7 hearts, one per incarnate, each granted to one of the Dawnborn's loyal mortal kingdoms as signs of trust to be defended against the darkness. They may also have additional magical powers.
+
+When Lysandre went mad, he believed that the Holy Order was coveting the orb and that enemies were abound attempting to steal it.

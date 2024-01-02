@@ -10,3 +10,6 @@ Members include:
 [[Tassia]], Hand of Malphas
 Grandmaster Caradrin Arantheal
 Others...
+
+Malphas has never been below [[Bral]].
+Malphas's favourite color is magenta.
