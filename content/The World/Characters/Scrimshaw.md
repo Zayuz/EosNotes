@@ -15,3 +15,5 @@ The location of Lysandre's Blade
 Breathing Bubbles
 An Ambrosia Preservation Case
 More...
+
+Scrimshaw is back, and he mentions he has fond memories of Lathyrus. He is cured of shadow and feels grateful and he wants to help! He is staying in Lathyrus Courtyard.

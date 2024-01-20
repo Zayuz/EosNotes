@@ -10,3 +10,6 @@ Maybe another plane?
 Apostates transform
 Shadows aren't mindless - specific locations produce commanders and intelligent ones
 (Five locations)
+
+
+Are the duskborn making the shadows? No, but they are related. We believe the shadows to be manifestations of magic itself that are undoubtedly connected to the high ones. Duskborn are magically overexposed, maybe connected if magic comes from the high ones. (Malphas)

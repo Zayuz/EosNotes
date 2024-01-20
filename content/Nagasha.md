@@ -1,0 +1,1 @@
+When the blood of the betrayed is renewed ... you will all die (paraphrase)

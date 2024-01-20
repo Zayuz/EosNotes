@@ -10,3 +10,5 @@ Rei: 'Yes, well... At least we have each other.'
 Lysandre: 'Well, if this is to be our last meeting for the foreseeable future lets make the most of it. Who wants to go sky racing?'
 They agree and dragonborn becomes a huge dragon (size - ancient+)
 Lysandre sprouts angel wings (aasimar), and Reihan's sword etching of a Pegasus becomes a mount for her to fly.
+
+Another memory of Reihan: Reihan stands in front of the gateway to the sepulchre conversing with the ghost of Reihan's mother. Reihan is crying, and Arazeal puts his arm around her. She 'didnt think it would happen to me.' The ghost is pulled into the gate, and vanishes. Her mother was killed during the rage of dragons.

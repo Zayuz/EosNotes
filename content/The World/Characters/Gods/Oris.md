@@ -3,10 +3,13 @@ The Goddess of Light, whose domains also include Peace and Solidarity. She is th
 Her form within Inodan is that of a large [[Radiants|Radiant]].
 
 She alludes that her six artefacts, if collected entirely, have some sort of power that will allow her to return to the world without sacrificing her duties. They include:
-Chalice
-Bow
-Blade
-Drape
-Two more?
+Chalice - 
+Bow - Wolf Mother
+Blade - Halaman
+Drape - Blood Elves of Kyris
+Horn - Razelighter
+Pendant - Lithiel
+
+Rose mentions the divine guardian, and the bishop mentions that they are excavating them but it will take too long. ORIS. This is big news that their goddess may come back! Rumours for more than a decade that the circlet sits upon the brow of the Dragon Empress. They do not know the others. Secure the divine guardian and use it against the dragons... Mungi thinks the chalice is owned by the Golden Queen of Sediim. Circlet = Vyn. Chalice = Sediim. Pendant = Alderwyl. 
 
 ![[Oris.png]]

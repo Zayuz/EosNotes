@@ -1,0 +1,1 @@
+The rebellion has taken Dawn's Crossing, and they come for Ark within the fortnight. The inner circle is mobilized and Malphas is attempting to broker a peace before they siege the city. They have slain a dawnborn (for sure), but what they intend to do with our world is horrible. Tear down that which has protected them for millennia. What should be done?

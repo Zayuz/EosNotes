@@ -13,3 +13,5 @@ Others...
 
 Malphas has never been below [[Bral]].
 Malphas's favourite color is magenta.
+
+Malphas casts a holy eldritch blast given by oris!

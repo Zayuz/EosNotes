@@ -10,6 +10,8 @@ Lithiel is somewhat uncooperative. She's never operated with others, trained by 
 
 "Seize your birth right" - Razikale to Lithiel upon donning the crown
 
+Lithiel claims to Shiloh early in the campaign that her god is Lysandre, and assures him that her goals of killing undead and ridding the world of Tyrants are the same. Xen mentioned Lithiel has parasite in her that needs to be removed before she can receive power from Xen. Xen also appeared directly and chatted with her, calls Razikale an ingrate and is the deity of indulgence. 
+
 #### Visions
 Lithiel sees a year in advance with her violent divination potion... These will be events if we dont alter the world!
 Three events:
@@ -111,96 +113,32 @@ Debunked when they clarified that they were holy order and that they were workin
 Relocated to [[Rose#Is Rose a Dawnborn?|Rose, The Dawnborn]].
 
 ### Unsorted Session Details
-Lithiel claims that her god is Lysandre to Shiloh, and assures him that her goals (killing undead and ridding the world of Tyrants is the same)
-
-Razikale is an incarnate. The most cunning, only uncontained. Heart of Lathyrus is a part of the network of keys used to do many things - only way to break the barrier? The barrier around the luminos. All of them are required to break the barrier... The others were under bigger guard after Lysandre's betrayal. 
-If the barrier broke it would be the end of the world.
-
-Rhinther disappeared with Erresseia. 
-
-Are the duskborn making the shadows? No, but they are related. We believe the shadows to be manifestations of magic itself that are undoubtedly connected to the high ones. Duskborn are magically overexposed, maybe connected if magic comes from the high ones. (Malphas)
-
-Found the Malphas Teleport Circle in the palace
-80% chance that we all died in lathyrus (Arazeal), he says it was worth the risk to fully stop the undead
 
 Leanna suggested that Lithiel had entirely selfish ambitions and shouldn't be trusted, put a gun to her head
 Tassia 'nearly' ordered a hit on Lithiel (Lithiel does not know this), very ominous vibe to her mentioning that to Florian.
-
-Wolf's Durge is a small stone building. (Wolfmother statue)
-Unsuspecting Cave in the mountain north of Wolf's Durge. There is a stone tower there that overlooks the cave, and the wolfmother will be there. LOUD NOISE, then explain ourselves. Wolfmother has not talked to the pantheon in centuries.
-
-Tim-o-thee and Quendoline want a different post instead of Wolf's Durge. Will pay 1K gold. Just kidding he lost it :(
-
-"There are forces working from within the order that are working against you. I believe one of you may be compromised. Contact me when nobody is listening." - Tassia in a secret note to Florian
-
-A group of people, hierarchy unknown, of high ranking orders and bishops that disapprove of our mission. They believe we will plunge the world into further chaos. They are very angry with us.
-
-The rebellion has taken Dawn's Crossing, and they come for Ark within the fortnight. The inner circle is mobilized and Malphas is attempting to broker a peace before they siege the city. They have slain a dawnborn (for sure), but what they intend to do with our world is horrible. Tear down that which has protected them for millennia. What should be done?
-
-Tassia - Trust Malphas, we can do no better than him
-
-Rose mentions the divine guardian, and the bishop mentions that they are excavating them but it will take too long. ORIS. This is big news that their goddess may come back! Rumours for more than a decade that the circlet sits upon the brow of the Dragon Empress. They do not know the others. Secure the divine guardian and use it against the dragons... Mungi thinks the chalice is owned by the Golden Queen of Sediim. Circlet = Vyn. Chalice = Sediim. Pendant = Alderwyl. 
-
-Xen mentioned Lithiel has parasite in her that needs to be removed before she can receive power from Xen. Xen also appeared directly and chatted with her, calls Razikale an ingrate and is the deity of indulgence. 
-
-
-The meeting between Malphas and the rebellion happens in a ruined [[Dawn's Crossing]]. The rebellion has destroyed it. Armies are here, and things are tense. Halmar (Half elf) is the rebellion leader, but Glinthorn is here to talk to us. Malphas does not want to tell the rebellion of the truth. 
 
 Wait - Vision of the future
 Kovosh might eventually break to the arcane fever, eeeek
 The rebellion did not burn Lion's Arch or Dawn's crossing, they blame the Dragons and the Holy Order respectively. 
 
-Halamar took no visible damage during our fight? He also has the Sword of Oris, the Duskfall Blade.
-
-Is there outer space?
-No, we know abt the sun and stuff. We still have a moon though? No stars or constellations. No concept of space. Astronomy isn't a field. 
-
-Halamar how do you know this stuff about the high ones? 
-He is reluctant to answer because of Lithiel's soul link to Razikale. Lithiel casts nondetection About 20 years ago I was on an Eldramarri expedition, and there was a research group tasked with Valuren ruins. It collapsed, and fell into a deeper network of caves. Three of them lived thanks to the intervention of a giant. No name, male, cracked like lightning with a huge beard. Spoke gibberish, but took care of them, and they left into the tunnels. The things the giant showed them were ancient languages, glyphs, places humming with power. The giant advised against descending, but they kept going. One died to cave trolls. A dead end, they gave up. Then they hear singing, not in their language yet they understand. The companion attacked Halamr, and Halamar struck in self defense. The dead end opened and revealed a place on no map, more ancient than the valuren. Constructs that look weird. Made of spheres, cubes, abstract things that prowled and ignored him. Tasks unknown. Singing came from them. In the center there was a building made of these shapes and he found a construct within that could translate to something comprehensible. The construct delivered great wisdom - called herself an oracle. Spoke of the high ones, their impending return, a great betrayal, misuse of gifts left behind, and how to banish the high ones. He saw many murals but cannot explain them. The high ones were referred to as parasites that leech on existence, both on Eos and off of it. Creators had left safeguards. The original beacons came from them. The beacons were to stop the high ones. The oracle mentioned other locales and he gained his power at one such location. He spent about 20 years underground to learn all the details and the language and all of that. Then he came up and started his rebellion, what he learned pushed him to action. He believes the Dawnborn to be innocent except for Malphas and Oris. Oris supposedly gave the Dawnborn their powers. 
-
-The plan to destroy the high ones: We are hunting the numinos. A numinos does not exist, it is not real. It is Oris. A Prophet at full power. If we can channel Oris into the beacon, the shockwave should be able to push them out of our reality. He does not believe she requires the relics, they are not related to the high one power. They are related to her divine status. His blade can take him to Inodan. 
-
-The Oracle Halamar spoke to said that her creators came to the world long before any others, they built their structures and her people and created extremely powerful divine beings. These Gods were also constructs, similar in power to the Divine Guardian. They ran the world, and created life. At some point following the fall of the Valuren but before the Dawnborn - Oris discovered and killed these Gods and took all their power into herself. Motive unclear. Her people were then given her power, but less than herself. They are not Gods, they killed the Gods and took their power. That is the great betrayal. We believe the Dawnborn know where the power came from, but not that Oris killed them. This could be the last cycle now that they're gone. 
-
-To give the relic to Oris he must do it himself in Inodan, or he needs to explain his logic to Malphas at the beacon.
-
 Lithiel told Florian's step mother that all the girls in the party were in a competition to win Florian's heart, and she clearly preferred Lithiel and especially disliked Amelia. She values good conservative values above all else.
-
-When the blood of the betrayed is renewed ... you will all die (paraphrase) (Queen of the dragons)
-
-Ourea claimed I was her descendent and that I was a demon, she could purge me and 
-
-'She didnt leave much to chance'
-Ourea has been to Eresséia and fights the high ones there
-Eresséia has been taken over by the rifts spawned by the high ones
-All of the high ones have corrupted versions of other things (the ice thralls, the angels)
-Destroy the artefacts of Razikale, and then give the throne to Ourea. 
-Lady Azura - Diplomatic Envoy to the Cult of the Rook in the whisperwood 14 days ago
 
 Tremel the Pet Imp, he is pink and friendly! He's a hellspawn
 Tremel cookie - A smore
 
 Alicia asked everyone to forgive Lithiel, which is very sweet.
 
-Scrimshaw is back, and he mentions he has fond memories of Lathyrus. He is cured of shadow and feels grateful and he wants to help! 
-He tells us of a few of Oris's artefacts
-Blood elves Khyris - Cloak
-Wolf mother - Bow
-Razelighter - Horn
-Scrimshaw is now vibing in the courtyard
+Toth forms a new little weak heart after we kill it. Amelia uses Scrimshaw's totem to capture his soul! And upon his capture, a new tunnel opens. 
+'Before you lies the past, not the future. Are you sure you want to confront it?' Trick is back, he returned during the fight, and Amelia forgives him! At the bottom of this new area will be the sword.
 
+Dragons attack Ark!!
+Malphas hates dragons, it seems.
+Dragons are attacking the rebellion in Dawn's Crossing.
 
-The Evermoon is a peaceful, bountiful land with wildlife around it. The moon is about the size of a city. Feels like static electricity near to it... 
-The Whisperwood has a memory curse that disorients you, and is considered a (fear or charm). We met a cute water guy who copies us sometimes and is friendly. They find gender confusing, as does Lithiel.
-We saw a small squirrel guy in the trees? We encountered a squirmel, half-squirrel half-cat little guys. These ones are from the Wild Hunt. Lord Herne is here with Archdruid Felanthe! They take us to him, and have heard of Lithiel. The trees whisper that Lithiel is here to cause harm... They think she's part of the cult of the rook. This is the Rootwoven sanctuary. The camp is obscured from the outside with magic. Based on the map of the forest, we understand it is magically artificial and influenced by the fey. Archdruid Vargoth is here and had fallen under Toth's sway... He is now one of Toth's Luitenants, and is corrupting a dryad grove. All of his people are good people now corrupted, and if we defeat Toth we can save them. Minotaur Archdruid is one - invading a druid burrow. Gnoll (not trick), aarokocra that willingly serves, a hag, and an archdruid who is permanently wildshaped to owlbear named Ariel. 
+Malphas casts 10th level impenetrable barrier, which looks similar to the luminos spell
 
-Azura is (not?) Toth's prophet. 
+The gods are mostly occupied in Inodan...?
 
-Progenitor ruins under Whisperwood...
-Room that the roots avoid, with lots of shapes and stuff in the shapes of roughly humanoid. The corruption spread through here and Toth's followers killed the constructs. He's made of an alloy of stone and metal, like ore? There is a building there that's long abandoned, but we do not have time to investigate it. 
+Lusacan was the strongest incarnate and the first to be imprisoned (not entirely true)? He could drink light, and is th emost difficult to contain. He can swallow the light of Lithiel's wish because Oris got her power from the Luminos as well.
 
-
-Lithiel was told by Toth that they should bow to her - which she refused, claiming that she would not be so easily corrupted
-All that you have accomplished, all that you have won... Yet still you lick the boots of kings.
-
-New runic language beneath the whisperwood where Toth's temple is, with more metal/stone allow. Very ornate. These runes we have seen once before on the runestone in Twinslove. Felanthe is studying the runestones, and learning lots about them! The architecture is the same as the Sepulchre of Souls, where Arazeal sends souls to the afterlife. Toth calls the high ones 'interlopers from beyond the black veil.' 'The great bird came before the interlopers.' Toth suggests he may not be a high one? He claims that Amiran won the war, and that they wrote history... They want it desperately. They would put this power to use against the interlopers. The Listeners have lied to us. 
+Lithiel almost cut off Nagasha's hand with her super smite lets fucking gooooo

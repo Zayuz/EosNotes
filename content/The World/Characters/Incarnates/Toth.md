@@ -9,5 +9,7 @@ When we confronted him in his lair, his core was that of a huge black heart of d
 >"With each threat unravelled, a step closer to my realm. Pluck their wings, leave them broken."
 >	- Toth, as the party approached his lair
 
+Lithiel was told by Toth that they should bow to her - which she refused, claiming that she would not be so easily corrupted
+All that you have accomplished, all that you have won... Yet still you lick the boots of kings.
 
 ![[Toth's Depiction.png|200x200]]

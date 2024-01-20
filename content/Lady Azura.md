@@ -1,0 +1,1 @@
+Azura is a high ranking member of the [[Cult of the Rook]] that worked with [[Vora]] in her plotting. It seems like she had something planned particularly for [[Lithiel]].

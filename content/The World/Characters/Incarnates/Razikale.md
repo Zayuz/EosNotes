@@ -11,4 +11,6 @@ Additionally, she confirmed that Lithiel's mother is very intelligent and was su
 
 Sometimes she speaks in Lithiel's mind during combat - the first instance of which was when she fought [[Wrath-Eye]], who was infected with Toth's corruption. "Yes, hit him again!"
 
+
+
 ![[Pasted image 20230820172604.png|400]]

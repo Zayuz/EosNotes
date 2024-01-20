@@ -1,1 +1,3 @@
 The leader of the [[Wild Hunt]].
+
+ Herne has served for 7000 years! 18 times he has been called upon. He witnessed the rise of the Dawnborn first hand. He was previous hero of the wilds! He fought the incarnates before, and he has fought Toth many times. His afterlife is much like this. Should we require his counsel, we may seek out his tomb in the barrows. He says he respects us and thinks we can save the world. 
