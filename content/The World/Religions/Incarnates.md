@@ -18,6 +18,6 @@ Known Incarnates include:
 
 While reaching for the light of the [[Luminos]] through the roots of the [[Twinslove]] Woods, [[Toth]] noticed [[Malphas]] attempting to trap him and began to flee, causing him to be only mostly trapped in time. His mind was free to think and he managed to leak much of his essence out through the roots.
 
-To contain the Incarnates, Malphas used thousands of tenth level protection spells featuring the following rune. It originally glowed RED BLACK BLUE PURPLE YELLOW ORANGE GREEN. However, since we severed a root connecting to the shield wall, green has vanished and Toph seems to be liberated now that no part of him is connected to the spell. The rune seems to vastly increase the caster's AC in the same way that shield does, and disintegrates any material object on contact with it. It is a 10th level spell.
+To contain the Incarnates, Malphas used thousands of tenth level protection spells featuring the following rune. It originally glowed RED BLACK BLUE PURPLE YELLOW ORANGE GREEN. However, since we severed a root connecting to the shield wall, green has vanished and Toth seems to be liberated now that no part of him is connected to the spell. The rune seems to vastly increase the caster's AC in the same way that shield does, and disintegrates any material object on contact with it. It is a 10th level spell.
 
 ![[Malphas's Protection Spell Rune.png]]
