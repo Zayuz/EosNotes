@@ -4,6 +4,9 @@ The Dawnborn are [[Valuren]] people who survived the [[Cleansings|cleansing]] of
 ###### Theories
 Because the Dawnborn MTG cards have the 'enchantment' aura around them and their mechanics function such that if they do not have enough devotion to their colour they are no longer a creature, it is possible that the weakness of the Gods is that should the people's faith be weakened they may no longer be able to directly influence the world.
 
+#### Currently
+Most of the Gods are supposedly occupied in Inodan, according to Malphas.
+
 ### Deeds
 The Dawnborn are responsible for many good things across the world, accomplished in the name of civilization and preservation.
 The first deed is that they seem to have brought the [[Cleansings|cleansings]] to a halt.

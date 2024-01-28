@@ -1,0 +1,1 @@
+The rebellion did not burn Lion's Arch or Dawn's crossing, they blame the Dragons and the Holy Order respectively. 

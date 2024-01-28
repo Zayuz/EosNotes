@@ -13,3 +13,5 @@ Lithiel was told by Toth that they should bow to her - which she refused, claimi
 All that you have accomplished, all that you have won... Yet still you lick the boots of kings.
 
 ![[Toth's Depiction.png|200x200]]
+
+Toth forms a new little weak heart after we kill it. Amelia uses Scrimshaw's totem to capture his soul! And upon his capture, a new tunnel opens. 

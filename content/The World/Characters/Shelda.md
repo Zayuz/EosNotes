@@ -1,1 +1,3 @@
 The trad wife of Fimben Featherfall, and [[Florian|Florian's]] step mom. She hates [[Amelia]] for an unknown reason, but quite likes the idea of him being with literally anyone else - especially Lithiel because she was a 'nice young woman' (had her tits out).
+
+Shelda Lithiel told Florian's step mother that all the girls in the party were in a competition to win Florian's heart, and she clearly preferred Lithiel and especially disliked Amelia. She values good conservative values above all else.

@@ -6,7 +6,7 @@ Known Incarnates include:
 [[Razikale]], the Lady of Obsession. Her follows serve in the [[Cult of the Mirror]]
 [[Urthemiel]], the sire of Undeath. His followers serve the Lich Queen [[Freyalise]] in Lathyrus.
 [[Toth]], the Lord of Wrath. His followers serve in the [[Cult of the Rook]].
-[[Lusacan]], the Lord of Rage. His followers serve [[Nagasha]] and the [[Dragon Empire]]
+[[Lusacan]], the Lord of Rage. His followers serve [[Nagasha]] and the [[Dragon Empire]]. The most powerful incarnate on Alderwyl.
 [[Zazikel]], ??? Cult of the Storm?
 [[Dumat]], ??? Cult of Blood?
 [[Andoral]], ??? Cult of Perfection?

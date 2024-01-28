@@ -112,33 +112,9 @@ Debunked when they clarified that they were holy order and that they were workin
 ##### Rose is a Dawnborn (Active)
 Relocated to [[Rose#Is Rose a Dawnborn?|Rose, The Dawnborn]].
 
-### Unsorted Session Details
-
+##### Things that Bother Lithiel
 Leanna suggested that Lithiel had entirely selfish ambitions and shouldn't be trusted, put a gun to her head
 Tassia 'nearly' ordered a hit on Lithiel (Lithiel does not know this), very ominous vibe to her mentioning that to Florian.
+Shiloh has made several allusions to fighting Lithiel if things go poorly with her gambits
 
-Wait - Vision of the future
-Kovosh might eventually break to the arcane fever, eeeek
-The rebellion did not burn Lion's Arch or Dawn's crossing, they blame the Dragons and the Holy Order respectively. 
-
-Lithiel told Florian's step mother that all the girls in the party were in a competition to win Florian's heart, and she clearly preferred Lithiel and especially disliked Amelia. She values good conservative values above all else.
-
-Tremel the Pet Imp, he is pink and friendly! He's a hellspawn
-Tremel cookie - A smore
-
-Alicia asked everyone to forgive Lithiel, which is very sweet.
-
-Toth forms a new little weak heart after we kill it. Amelia uses Scrimshaw's totem to capture his soul! And upon his capture, a new tunnel opens. 
-'Before you lies the past, not the future. Are you sure you want to confront it?' Trick is back, he returned during the fight, and Amelia forgives him! At the bottom of this new area will be the sword.
-
-Dragons attack Ark!!
-Malphas hates dragons, it seems.
-Dragons are attacking the rebellion in Dawn's Crossing.
-
-Malphas casts 10th level impenetrable barrier, which looks similar to the luminos spell
-
-The gods are mostly occupied in Inodan...?
-
-Lusacan was the strongest incarnate and the first to be imprisoned (not entirely true)? He could drink light, and is th emost difficult to contain. He can swallow the light of Lithiel's wish because Oris got her power from the Luminos as well.
-
-Lithiel almost cut off Nagasha's hand with her super smite lets fucking gooooo
+### Unsorted Session Details

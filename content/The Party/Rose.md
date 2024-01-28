@@ -5,6 +5,8 @@ Rose is supposed to visit [[Inodan]] with [[Tassia]] to meet [[Oris]], who she h
 
 Later, when the party explored [[Wolfmother’s Embrace]], Rose gained an audience with the [[Watchers]] in the following conversation about the nature of the [[High Ones]] and their motives: [[Rose Meets the Watchers]]
 
+When confronting [[Nagasha]], the following transpired:
+Rose 'bears his mark.' It will do for breaking the chain. 'No... You bear *her* mark.' 
 
 
 ### Is Rose a Dawnborn?

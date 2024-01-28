@@ -15,3 +15,5 @@ Malphas has never been below [[Bral]].
 Malphas's favourite color is magenta.
 
 Malphas casts a holy eldritch blast given by oris!
+Malphas hates dragons, it seems.
+Malphas casts 10th level 'impenetrable barrier', which looks similar to the Luminos spell

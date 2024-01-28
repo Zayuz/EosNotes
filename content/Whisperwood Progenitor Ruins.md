@@ -2,3 +2,5 @@ Progenitor ruins under Whisperwood...
 Room that the roots avoid, with lots of shapes and stuff in the shapes of roughly humanoid. The corruption spread through here and Toth's followers killed the constructs. He's made of an alloy of stone and metal, like ore? There is a building there that's long abandoned, but we do not have time to investigate it. 
 
 New runic language beneath the Whisperwood where Toth's temple is, with more metal/stone allow. Very ornate. These runes we have seen once before on the runestone in Twinslove. Felanthe is studying the runestones, and learning lots about them! The architecture is the same as the Sepulchre of Souls, where Arazeal sends souls to the afterlife. Toth calls the high ones 'interlopers from beyond the black veil.' 'The great bird came before the interlopers.' Toth suggests he may not be a high one? He claims that Amiran won the war, and that they wrote history... They want it desperately. They would put this power to use against the interlopers. The Listeners have lied to us.
+
+'Before you lies the past, not the future. Are you sure you want to confront it?' At the bottom of this new area will be the sword.
