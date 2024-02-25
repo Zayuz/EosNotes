@@ -1,5 +1,5 @@
-Gnolls are native to the lands around Twinslove, and are typically passive. However, with Toth's corruption seeping through the lands they have been united under Decatriarch Wratheye, who leads the three bands in unity against the civilized world. They raid, slaughter, and feast with eyes of Red Madness. Wratheye rules from The Hollow, which is down below Twinslove. She is capable of terrible necromancy, and also happens to be one of [[Freyalise|Freyalise's]] lieutenants. 
+Gnolls are native to the lands around [[Twinslove]], and are typically passive. However, with [[Toth]]'s corruption seeping through the lands they have been united under Decatriarch [[Wrath-Eye]], who leads the three bands in unity against the civilized world. They raid, slaughter, and feast with eyes of Red Madness. Wratheye rules from The Hollow, which is down below Twinslove. She is capable of terrible necromancy, and also happens to be one of [[Freyalise|Freyalise's]] lieutenants. 
 
-The party is currently unsure why one of the gnolls commanders, Trick-Totem, reverted to having normal eyes and shedding red madness for a short time while he was 'captured' on the surface.
+The party is currently unsure why one of the gnolls commanders, [[Trick-Totem]], reverted to having normal eyes and shedding red madness for a short time while he was 'captured' on the surface.
 
 The [[Merrenoloths]] are doing their best to quell the rage within the gnolls at the behest of [[Archdruid Vargoth]].
