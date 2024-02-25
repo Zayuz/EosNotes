@@ -134,3 +134,6 @@ Lithiel merged consciousnesses with Urthemiel... And every soul added to hers fr
 Her *soul* is merging with them, and souls can be damaged. Scrimshaw told her that every incarnate added consumes a part of her. The incarnates are beholden to Lithiel's will, but their powers are not being restricted in any way. The less Lithiel soul there is, the more their power will leak out. More incarnates = more passive negative effects. Scrimshaw says she is older than the Gods. Scrimshaw gave her a metal rubix-cube like box with no colors. She evaluates this extremely highly. 
 
 Rose's dream: Figure made of Golden light. He walks down the stairs away from her. It is in her house. In the kitchen, with the glowing golden arcane ball. It is not one of the animal high ones, and it waves its hand over the ball and it moves towards Rose. She takes it out of the cup and it is like a control sphere but bigger. Her mother's voice comes from the sphere: you're ready. The sphere shakes. The figure has become feminine. She obtains the ball in her backpack. The figure now has hair. It goes to the garden. There is something in the sky blocking it out - a pure white laminate sky. Esoteric shape? Wings folded all different directions. 7 or so. At the centre is a glowing golden female face. It is Oris.
+
+
+Test est estes
