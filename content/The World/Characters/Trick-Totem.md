@@ -2,5 +2,5 @@ A gnoll that scatters totems with random effects. They include healing, mind con
 
 He is the leader of the gnolls that were beneath [[Twinslove]] after we defeated [[Wrath-Eye]], and he intends to take them to new lands.
 
-When the party visited Amelia's Hometown [[Alder]] and we found it burned and ravaged by gnolls, Trick-Totem felt ashamed to have taken part even while under mind-control and left the party.
-Later, when we were confronting [[Toth]], he returns and [[Amelia]] forgives him!
+When the party visited Amelia's Hometown NAME-PENDING and we found it burned and ravaged by gnolls, Tricktotem felt ashamed to have taken part even while under mind-control and left the party.
+Later, when we were confronting Toth, he returns and Amelia forgives him! 
