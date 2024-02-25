@@ -118,3 +118,19 @@ Tassia 'nearly' ordered a hit on Lithiel (Lithiel does not know this), very omin
 Shiloh has made several allusions to fighting Lithiel if things go poorly with her gambits
 
 ### Unsorted Session Details
+Huge spike full of shadow energy in the heart of Lusacan. Has the same make as the Runestones found in Twinslove and in Progenitor Ruins. 
+It makes a funky wunky sound when the Divine Guardian attacks it. Carvings and glyphs in it... It is metal, and super heavy and sharp. When it fell out of Lusacan, he started to fall immediately. 
+
+The landmass Lusacan is flying over is a storm, with glimpses of small humanoids zooming in and out of clouds all over the place with flashes of colored lights. It seems there is a fight going on! Ruins of HUGE ancient roman vibe ruins. Thousands fighting below. The ruins are very old and overgrown, and happens to be elvish in origin. Neither wood elf, nor holy order elf. There are space rifts everywhere like that of Inodan. They are larger, and the flying creatures were angels. They fight angelic mockeries. This is Eresséia. The people were humanoid and they fight thralls like those from Narthaxus. Less ice, more shadow. 
+
+When an incarnate is slain with Oris's magic, they are for real for real killed.
+Lusacan is for real for real gone. 
+Razikale speaks... 'Ohh that was vicious, even for you.'
+
+Lithiel has realized that being kind and polite will help her make friends.
+The white lady appears to Shiloh again... She's like 'what why didn't you use my gift?' She can see our dinners, and believes that Lithiel absorbing the power of the incarnates should trouble Shiloh. He intends to keep an eye on her. She can see Lithiel speaking to Amelia about it... She is interested in us because we are the 'first people in uncountable ages to actually DO SOMETHING. To MAKE PROGRESS. To break the infinite cycle.' She thinks our incarnate slaying is 'pretty sick.' Shiloh is afraid to fragment their momentum and  comraderies if he intervenes against Lithiel. She offers power of her own and claims that this means we have other avenues. Her power is her own, she claims. Carefully curated over aeons. She hates the incarnates. 
+
+Lithiel merged consciousnesses with Urthemiel... And every soul added to hers frays hers a little bit more. 
+Her *soul* is merging with them, and souls can be damaged. Scrimshaw told her that every incarnate added consumes a part of her. The incarnates are beholden to Lithiel's will, but their powers are not being restricted in any way. The less Lithiel soul there is, the more their power will leak out. More incarnates = more passive negative effects. Scrimshaw says she is older than the Gods. Scrimshaw gave her a metal rubix-cube like box with no colors. She evaluates this extremely highly. 
+
+Rose's dream: Figure made of Golden light. He walks down the stairs away from her. It is in her house. In the kitchen, with the glowing golden arcane ball. It is not one of the animal high ones, and it waves its hand over the ball and it moves towards Rose. She takes it out of the cup and it is like a control sphere but bigger. Her mother's voice comes from the sphere: you're ready. The sphere shakes. The figure has become feminine. She obtains the ball in her backpack. The figure now has hair. It goes to the garden. There is something in the sky blocking it out - a pure white laminate sky. Esoteric shape? Wings folded all different directions. 7 or so. At the centre is a glowing golden female face. It is Oris.
